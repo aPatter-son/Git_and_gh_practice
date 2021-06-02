@@ -1,0 +1,3 @@
+Climbing
+Video games
+Hiking
